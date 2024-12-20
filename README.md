@@ -1,0 +1,1 @@
+Hello. I am who I am and if I wasn't then who am I? I am whoever I am, whichever I am. Apart from that I have nothing else to say... Oh yes, hello World! Say it back... say it back. You aren't going to say it back...? Oh, I see how it is... Fine. I'm ready for you. Come at me with all you got.
